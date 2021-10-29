@@ -8,4 +8,4 @@
 
 💞️ I’m looking to collaborate in general. 
 
-📫 How to reach me...
+📫 How to reach me miranda.zermeno4@gmail.com
